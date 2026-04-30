@@ -1,2 +1,2 @@
 # AChanger-Huang
-Those who dare to be the craziest will changer the world
+Only those who dare to be the craziest can change the world.
